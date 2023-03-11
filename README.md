@@ -1,2 +1,0 @@
-# instamod
-Sei la
